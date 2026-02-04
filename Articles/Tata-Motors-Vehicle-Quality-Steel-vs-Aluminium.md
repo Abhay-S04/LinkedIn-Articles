@@ -1,0 +1,6 @@
+# How Tata Motors Builds Strong and Cost-Efficient Vehicles
+
+Originally published on LinkedIn  
+🔗 Full article:https://www.linkedin.com/your-article-link](https://www.linkedin.com/posts/abhay-s-8a02a5278_tatamotors-tatasteel-automotive-activity-7237425729825636355-7GGT?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEOsqLgBJDeR8r3_1rfsvGfuipkWX4rqIAE)
+
+This article explains how Tata Motors balances vehicle strength, weight, and cost efficiency through its material choices. It discusses the company’s higher use of steel compared to aluminium, supported by its integration with Tata Steel, and highlights how this strategy helps maintain structural strength, cost advantages, and competitive positioning within the automotive industry.
